@@ -29,3 +29,8 @@ Let's fucking do it.
 I want to build an army."
 
 These communications outline my underpinning motivations here. I have absolutely nothing, yet I'll be sticking around. I'll invest everything I can get back into this, I'll burn tokens, I'll lock tokens, I'll get all the fees covered, I'll deal with boosts, I'll build community. That's what I'm about. This is my first token, one of many. There's a storm coming. Watch this space. Have faith in me. Everyone in my home has a seat at the table. Everyone at my table eats equally. Everyone by my side right is together, hand in hand. There's no help coming, we need to help each other. The greatest rebellion is in building strong community. Let's do some community building. I'm right here I'm waiting. Join me. I won't let you down. 
+
+
+CA: 2dnFAH5QQx9g3bTvnvTi9G9PM14sauiesbo4HpJjpump
+Telegram: https://t.me/WTFLIFE69
+Website: wtflife.lol
